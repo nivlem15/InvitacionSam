@@ -1,2 +1,0 @@
-# InvitacionSam
-Bautizo Kevin Samuel
